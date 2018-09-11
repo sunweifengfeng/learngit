@@ -2,4 +2,4 @@ good good study.
 day day up.
 we are good students.
 take it easy.
-come on!
+come on and insist on!
